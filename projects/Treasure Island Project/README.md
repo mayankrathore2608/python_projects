@@ -1,0 +1,1 @@
+To know the rules of the game , please refer treasure island flowchart pdf
